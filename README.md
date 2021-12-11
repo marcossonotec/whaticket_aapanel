@@ -11,3 +11,8 @@ https://m.do.co/c/636633455bf1
 👉 Link para o vídeo completo 
 
 https://econhecimento.com/whaticket-aapnel/
+
+
+
+Créditos desse projeto para  👉 https://www.aapanel.com/index.html 
+Agradevimento para Cassio 👉 https://github.com/canove/whaticket
